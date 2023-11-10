@@ -1,4 +1,4 @@
-![Nina.Carducci](/assets/images/camera.webp)
+![Nina.Carducci](/assets/images/slider/nicholas-green-concert.webp)
 
 # Nina.Carducci L. Anthony
 
